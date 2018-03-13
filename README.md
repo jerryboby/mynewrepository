@@ -1,0 +1,4 @@
+# mynewrepository
+rrcccgcgcc
+rrvvttvvu
+ftbityyyb
