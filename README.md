@@ -1,6 +1,4 @@
 
 #this is embarassing
 ##goart
-
-![screenshot_2](https://user-images.githubusercontent.com/33538294/37344855-82051804-26f1-11e8-8ebd-31c131e10da6.png)
-
+![flower-purple-lical-blosso](https://user-images.githubusercontent.com/33538294/37345166-50e5fb7a-26f2-11e8-86a0-53515a7f4daf.jpg)
